@@ -12,13 +12,7 @@ Turkish melamine tableware manufacturer — Istanbul, est. 2014
 
 ## About Us
 
-AKEL Melamin Plastik San. ve Tic. Ltd. Şti. is a melamine tableware
-
-manufacturer founded in 2014, backed by over 35 years of manufacturing
-
-experience, based in İkitelli OSB, Istanbul, with a showroom at İSTOÇ.
-
-We serve the domestic HORECA / B2B market and export worldwide.
+AKEL Melamin Plastik San. ve Tic. Ltd. Şti. is a melamine tableware manufacturer founded in 2014, backed by over 35 years of manufacturing experience, based in İkitelli OSB, Istanbul, with a showroom at İSTOÇ. We serve the domestic HORECA / B2B market and export worldwide.
 
 ## Quality
 
